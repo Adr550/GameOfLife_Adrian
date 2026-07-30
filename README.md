@@ -1,1 +1,1 @@
-Gif del funcionamiento del juego: 
+Gif del funcionamiento del juego:  https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExZWQ0MmlhOG9qdzVld2Y5eHUyM3poNnRpNmJobXF2ZzQ3cnFiZzVuZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/IxPxuUaYQiV7BlnHNp/giphy.gif
